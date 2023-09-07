@@ -1,6 +1,6 @@
 ## Demo Screen Recording
 
-![SCREEN RECORD](https://drive.google.com/file/d/1q7kkZvuq-K08iiYLDcCobONShpSIjusv/view?usp=drive_link)
+- [SCREEN RECORD](https://youtube.com/shorts/WbCM_yo1qhk)
 
 ## Demo APK
 
